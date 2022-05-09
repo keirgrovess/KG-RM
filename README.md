@@ -14,3 +14,7 @@ EAT BEFORE YOU MEET US AT THE PUB!!!
 
 ## Rules
 No wining
+
+## Notes
+
+There will be minibusses for everyone to go from Didsbury to our house so no need to drive. We recomned getting a taxi or public transport to Didsbury.
