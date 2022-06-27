@@ -1,7 +1,8 @@
-# tie-t-knot
-KG and RM wedding info
+# Keir and Rosanne's wedding info
 
-
+## Date and location
+17th September 2pm till late; Wedding and reception; Didsbury Pub, Didsbury Parsonage trust, Our house (76 Norwood Road M32 8PW)
+18th September; Disc golf in Longford park (next to our house)
 
 ## Itinirary
 
