@@ -18,21 +18,21 @@
  _|\_\   \___|         |_|_\ |_|  |_| 
 
 ```
-***
+# WEDDING INFO
                                                                    
 ## Date and location
 17th September 2022 at 2pm
 
 The Didsbury Parsonage Trust, Manchester M20 2RQ
 
-## Itinirary
+## Itinerary
 
 ### Saturday
 ```14:00             Meet at The Didsbury Pub - M20 2SG```
 
 ```15:45             Head over for the ceremony at the Parsonage Trust (next to the pub)```
 
-```17:00             Champers and snacks```
+```17:00             Turn the water into Champers (and snacks)```
 
 ```17:45             Minibuses to our house for the afterparty! (Food and booze provided)```
 
@@ -42,7 +42,7 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 ```We will be around most of the day so feel free to drop by```
 
 ### Notes
-* Eat lunch before coming to the pub
+* Eat lunch before coming to the pub - we will be providing snacks and evening meal
 * The Didsbury pub: 852 Wilmslow Rd, M20 2SG https://g.page/TheDidsbury?share
 * The Didsbury Parsonage Trust: The Old Parsonage, Stenner Ln, M20 2RQ, https://goo.gl/maps/yAuxJLfq5CSMrfST7 
 * Only 60 people will fit in for the ceremony so some people may have to wait in the gardens (or pub)
