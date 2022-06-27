@@ -1,21 +1,43 @@
-# Keir and Rosanne's wedding info
+```
+/$$   /$$  /$$$$$$                        /$$$$$$$  /$$      /$$
+| $$  /$$/ /$$__  $$          /$$         | $$__  $$| $$$    /$$$
+| $$ /$$/ | $$  \__/         | $$         | $$  \ $$| $$$$  /$$$$
+| $$$$$/  | $$ /$$$$       /$$$$$$$$      | $$$$$$$/| $$ $$/$$ $$
+| $$  $$  | $$|_  $$      |__  $$__/      | $$__  $$| $$  $$$| $$
+| $$\  $$ | $$  \ $$         | $$         | $$  \ $$| $$\  $ | $$
+| $$ \  $$|  $$$$$$/         |__/         | $$  | $$| $$ \/  | $$
+|__/  \__/ \______/                       |__/  |__/|__/     |__/
 
+```
+***
+                                                                   
 ## Date and location
-17th September 2pm till late; Wedding and reception; Didsbury Pub, Didsbury Parsonage trust, Our house (76 Norwood Road M32 8PW)
-18th September; Disc golf in Longford park (next to our house)
+17th September 2022 at 2pm
+
+The Didsbury Parsonage Trust, Manchester M20 2RQ
 
 ## Itinirary
 
-EAT BEFORE YOU MEET US AT THE PUB!!!
+### Saturday
+```14:00             Meet at The Didsbury Pub```
 
-- 1400 Meet us at the Didsbury pub M20 2SG
-- 1545 Go to ceremony at Parsonage Trust (next to the pub).  Some need to stay in the gardens as only 60 will fit in venue. see list below list below
-- 1700 Champagne and snacks in the gardens
-- 1800 Minibusses to Norwood Road for house party - Food and booze provided.
+```15:45             Head over for the ceremony at the Parsonage Trust (next to the pub)```
 
-## Rules
-No wining
+```17:00             Champers and snacks```
 
-## Notes
+```17:45             Minibuses to our house for the afterparty! (Food and booze provided)```
 
-There will be minibusses for everyone to go from Didsbury to our house so no need to drive. We recomned getting a taxi or public transport to Didsbury.
+Notes
+* Eat lunch before coming to the pub
+* The Didsbury pub: https://g.page/TheDidsbury?share
+* Only 60 people will fit in for the ceremony so some people may have to wait in the gardens (or pub)
+* Minibuses provided from Didsbury to our house, we recommend not driving
+* Our house: 76 Norwood Road M32 8PW https://goo.gl/maps/1VQMeWVhUjXd3dpK9
+
+### Sunday
+```Optional brunch/ disc golf in the park next to our house (more details closer to the time)```
+
+```We will be around most of the day so feel free to drop by```
+
+## Dress code
+Wear what you want
