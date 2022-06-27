@@ -1,13 +1,6 @@
-```
-/$$   /$$  /$$$$$$                        /$$$$$$$  /$$      /$$
-| $$  /$$/ /$$__  $$          /$$         | $$__  $$| $$$    /$$$
-| $$ /$$/ | $$  \__/         | $$         | $$  \ $$| $$$$  /$$$$
-| $$$$$/  | $$ /$$$$       /$$$$$$$$      | $$$$$$$/| $$ $$/$$ $$
-| $$  $$  | $$|_  $$      |__  $$__/      | $$__  $$| $$  $$$| $$
-| $$\  $$ | $$  \ $$         | $$         | $$  \ $$| $$\  $ | $$
-| $$ \  $$|  $$$$$$/         |__/         | $$  | $$| $$ \/  | $$
-|__/  \__/ \______/                       |__/  |__/|__/     |__/
+# WEDDING INFO
 
+```
      )                  (       *     
   ( /( (                )\ )  (  `    
   )\()))\ )            (()/(  )\))(   
@@ -16,10 +9,7 @@
 | |/ /(_)) __| |_   _| | _ \ |  \/  | 
   ' <   | (_ |   |_|   |   / | |\/| | 
  _|\_\   \___|         |_|_\ |_|  |_| 
-
-```
-# WEDDING INFO
-                                                                   
+```                                                                   
 ## Date and location
 17th September 2022 at 2pm
 
@@ -30,11 +20,11 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 ### Saturday
 ```14:00             Meet at The Didsbury Pub - M20 2SG```
 
-```15:45             Head over for the ceremony at the Parsonage Trust (next to the pub)```
+```16:00             Ceremony at the Parsonage Trust (next to the pub)```
 
-```17:00             Turn the water into Champers (and snacks)```
+```16:30             Turn the water into Champers```
 
-```17:45             Minibuses to our house for the afterparty! (Food and booze provided)```
+```17:30             Minibuses to our house for the afterparty! (Food and booze provided)```
 
 ### Sunday
 ```Optional brunch/disc-golf in Longford park, next to our house (more details closer to the time)```
