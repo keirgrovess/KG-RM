@@ -27,6 +27,8 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 ```
 16:30             Turn the water into Champers
 ```
+<p><code>foo</code></p>
+
 
 `17:30             Minibuses to our house for the afterparty! (Food and booze provided)`
 
