@@ -15,28 +15,20 @@
 
 The Didsbury Parsonage Trust, Manchester M20 2RQ
 
+
 ## Itinerary
-
 ### Saturday
-14:00   `Meet at the Didsbury pub - M20 2SG`
-```
-16:00   Ceremony at the Parsonage Trust (next to the pub)
-```
-```
-16:30   Turn the water into Champers
-```
-```
-17:30   Minibuses to our house for the afterparty! (Food and booze provided)
-```
+`14:00   Meet at the Didsbury pub - M20 2SG`
 
+`16:00   Ceremony at the Parsonage Trust (next to the pub)`
+
+`16:30   Turn the water into Champers`
+
+`17:30   Minibuses to our house for the afterparty! (Food and booze provided)`
 ### Sunday
-```
-Optional brunch/disc-golf in Longford park, next to our house (more details closer to the time)
-```
+`Optional brunch/disc-golf in Longford park, next to our house (more details closer to the time)`
 
-```
-We will be around most of the day so feel free to drop by
-```
+`We will be around most of the day so feel free to drop by`
 
 ### Notes
 * Eat lunch before coming to the pub - we will be providing snacks and evening meal
@@ -46,6 +38,7 @@ We will be around most of the day so feel free to drop by
 * Minibuses provided from Didsbury to our house, we recommend not driving
 * Our house: 76 Norwood Road, M32 8PW, https://goo.gl/maps/1VQMeWVhUjXd3dpK9
 * Longford park: 95 Edge Lane, M32 8PX, https://goo.gl/maps/6LfeujcsjB1Bgigx9
+
 
 ## Dress code
 Wear what you want
