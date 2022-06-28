@@ -29,6 +29,8 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 ```
 <p><code>16:00             Ceremony at the Parsonage Trust (next to the pub)</code></p>
 
+<p><code> a</code></p>
+
 
 `17:30             Minibuses to our house for the afterparty! (Food and booze provided)`
 
