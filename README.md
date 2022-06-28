@@ -27,7 +27,7 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 ```
 16:30             Turn the water into Champers
 ```
-<p><code>foo</code></p>
+<p><code>16:00             Ceremony at the Parsonage Trust (next to the pub)</code></p>
 
 
 `17:30             Minibuses to our house for the afterparty! (Food and booze provided)`
