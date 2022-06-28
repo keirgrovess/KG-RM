@@ -18,9 +18,7 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 ## Itinerary
 
 ### Saturday
-```
-14:00   Meet at the Didsbury pub - M20 2SG
-```
+14:00   `Meet at the Didsbury pub - M20 2SG`
 ```
 16:00   Ceremony at the Parsonage Trust (next to the pub)
 ```
