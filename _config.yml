@@ -1,3 +1,3 @@
 theme: jekyll-theme-minimal
-# markdown: GFM
-markdown: kramdown
+markdown: GFM
+# markdown: kramdown
