@@ -18,13 +18,13 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 
 ## Itinerary
 ### Saturday
-`14:00      Meet at the Didsbury pub - M20 2SG`
+`14:00    Meet at the Didsbury pub - M20 2SG`
 
-`16:00      Ceremony at the Parsonage Trust (next to the pub)`
+`16:00     Ceremony at the Parsonage Trust (next to the pub)`
 
-`16:30      Turn the water into Champers`
+`16:30   Turn the water into Champers`
 
-`17:30      Minibuses to our house for the afterparty! (Food and booze provided)`
+`17:30  Minibuses to our house for the afterparty! (Food and booze provided)`
 ### Sunday
 `Optional brunch/disc-golf in Longford park, next to our house (more details closer to the time)`
 
@@ -32,7 +32,7 @@ The Didsbury Parsonage Trust, Manchester M20 2RQ
 
 ### Notes
 * Eat lunch before coming to the pub - we will be providing snacks and evening meal
-* The Didsbury pub: 852 Wilmslow Rd, M20 2SG https://g.page/TheDidsbury?share
+* The pub: Didsbury, 852 Wilmslow Rd, M20 2SG https://g.page/TheDidsbury?share
 * The Didsbury Parsonage Trust: The Old Parsonage, Stenner Ln, M20 2RQ, https://goo.gl/maps/yAuxJLfq5CSMrfST7 
 * Only 60 people will fit in for the ceremony so some people may have to wait in the gardens (or pub)
 * Minibuses provided from Didsbury to our house, we recommend not driving
