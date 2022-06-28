@@ -11,13 +11,10 @@
  _|\_\   \___|         |_|_\ |_|  |_| 
 ```                                                                   
 ## Date and location
-```
-17th September 2022 at 2pm
-```
 
-```
-The Didsbury Parsonage Trust, Manchester M20 2RQ
-```
+`17th September 2022 at 2pm`
+
+`The Didsbury Parsonage Trust, Manchester M20 2RQ`
 
 ## Itinerary
 ### Saturday
