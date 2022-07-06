@@ -33,7 +33,7 @@ Optional brunch/disc-golf in Longford park, next to our house (more details clos
 
 We will be around most of the day so feel free to drop by
 
-### Notes
+## Notes
 * Eat lunch before coming to the pub - we will be providing snacks and evening meal
 * The pub: Didsbury, 852 Wilmslow Rd, M20 2SG https://g.page/TheDidsbury?share
 * Ceremony location: The Didsbury Parsonage Trust, The Old Parsonage, Stenner Ln, M20 2RQ, https://goo.gl/maps/yAuxJLfq5CSMrfST7 
@@ -41,8 +41,8 @@ We will be around most of the day so feel free to drop by
 * Minibuses provided from Didsbury to our house, we recommend not driving
 * Our house: 76 Norwood Road, M32 8PW, https://goo.gl/maps/1VQMeWVhUjXd3dpK9
 * Longford Park: 95 Edge Lane, M32 8PX, https://goo.gl/maps/6LfeujcsjB1Bgigx9
+* No wedding presents
 
 
 ## Dress code
 Wear what you want
-***
