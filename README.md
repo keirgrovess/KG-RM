@@ -40,7 +40,7 @@ We will be around most of the day so feel free to drop by
 * No wedding presents
 
 ## Dress code
-Wear what you want - except stilettos, we have wooden floors.
+Wear what you want - except stilettos, we have wooden floors
 
 ## Addresses
 * The pub: Didsbury, 852 Wilmslow Rd, M20 2SG https://g.page/TheDidsbury?share
