@@ -17,7 +17,10 @@
 
 `17th September 2022 at 2pm`
 
-`The Didsbury Parsonage Trust, Manchester M20 2RQ`
+`Ceremony at The Didsbury Parsonage Trust, Manchester M20 2RQ`
+
+`Houseparty at ours, Manchester M32 8PW`
+
 
 ## Itinerary
 
@@ -25,24 +28,29 @@
 
 **14:00** - Meet at the Didsbury pub - M20 2SG
 
-**16:00** - Ceremony at the Parsonage Trust (next to the pub)
+**15:40** - Priority boarders enter Parsonage Trust (next to the pub) for ceremony
 
-**16:30** - Turn the water into Champers
+**15:50** - Everyone else comes into Parsonage Trust - only 60 people will fit in for the ceremony so some people may have to wait in the gardens (or pub)
+
+**16:00** - Ceremony starts
+
+**16:30** - Champagne and sandwiches
 
 **17:30** - Minibuses to our house for the afterparty! (Food and booze provided)
 
 ### Sunday
 
-Optional brunch/disc-golf in Longford park, next to our house (more details closer to the time)
+Weather permitting, we plan to setup a gazebo in Longford park (next to our house) at about midday to hang out, play disc golf etc. There's a cafe for brunch/lunch/ice creams. If it rains check here for update.
 
-We will be around most of the day so feel free to drop by
+We will be having a few drinks somewhere Sunday evening too - no need to rush off now there's a bank holiday on the Monday!
 
 ## Notes
 
-* Eat lunch before coming to the pub - we will be providing snacks and evening meal
-* Only 60 people will fit in for the ceremony so some people may have to wait in the gardens (or pub)
-* Minibuses provided from Didsbury to our house, we recommend not driving
 * No wedding presents
+* Eat lunch before coming to the pub - we will be providing snacks and evening meal
+* Minibuses provided from Didsbury to our house, we recommend not driving
+* Don't try and park on our road on the Saturday, the road is closed for a street party.
+
 
 ## Dress code
 
@@ -53,4 +61,4 @@ Wear what you want - except stilettos, venues have wooden floors
 * The pub: Didsbury, 852 Wilmslow Rd, M20 2SG https://g.page/TheDidsbury?share
 * Ceremony location: The Didsbury Parsonage Trust, The Old Parsonage, Stenner Ln, M20 2RQ, https://goo.gl/maps/yAuxJLfq5CSMrfST7
 * Our house: 76 Norwood Road, M32 8PW, https://goo.gl/maps/1VQMeWVhUjXd3dpK9
-* Longford Park: 95 Edge Lane, M32 8PX, https://goo.gl/maps/6LfeujcsjB1Bgigx9
+* Longford Park gazebo location: https://goo.gl/maps/jNhPXfpVAeqT3syZ7
