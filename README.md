@@ -36,7 +36,7 @@
 
 **16:30** - Champagne and sandwiches
 
-**17:30** - Minibuses to our house for the afterparty! (Food and booze provided)
+**17:15** - Minibuses to our house for the afterparty! (Food and booze provided)
 
 ### Sunday
 
