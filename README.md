@@ -40,9 +40,9 @@
 
 ### Sunday
 
-Weather permitting, we plan to setup a gazebo in Longford park (next to our house) at about midday to hang out, play disc golf etc. There's a cafe for brunch/lunch/ice creams. If it rains check here for update.
+~~Weather permitting, we plan to setup a gazebo in Longford park (next to our house) at about midday to hang out, play disc golf etc. There's a cafe for brunch/lunch/ice creams~~
 
-We will be having a few drinks somewhere Sunday evening too - no need to rush off now there's a bank holiday on the Monday!
+Disc golf has been rained off. Give us a call if you want to hang out
 
 ## Notes
 
